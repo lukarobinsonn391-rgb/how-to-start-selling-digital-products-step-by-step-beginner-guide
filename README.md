@@ -1,4 +1,4 @@
-# how-to-st<h1><strong>How to Start Selling Digital Products Step by Step as a Beginner</strong></h1>
+<h1><strong>How to Start Selling Digital Products Step by Step as a Beginner</strong></h1>
 <p><span style="font-weight: 400;">Digital products are one of the most beginner-friendly ways to start an online business.&nbsp;</span></p>
 <p><span style="font-weight: 400;">You create something once, such as a template, ebook, course or printable, and sell it as many times as you can find buyers, with no inventory and no shipping.&nbsp;</span></p>
 <p><span style="font-weight: 400;">It is not effortless money, though. You still need an idea people want, a product worth paying for, a place to sell it and a way to reach buyers.&nbsp;</span></p>
